@@ -1,4 +1,4 @@
-#  
+#  all star tower defense Script stealth is the best all star tower defense Script, featuring auto-upgrade and auto-farm. Safe and powerful for all your
 
 
 
